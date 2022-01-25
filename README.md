@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @CoderProInTheWorld
 - 👀 I’m interested in YOU <3
 - 🌱 I’m currently learning Code
-- 💞️ I’m looking to collaborate on sex girl
+- 💞️ I’m looking to collaborate on sexy girl
 - 📫 How to reach me : minhmoc305@gmail.com
 
 <!---
